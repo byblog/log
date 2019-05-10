@@ -25,7 +25,7 @@ https://www.zhihu.com/question/19550695/answer/12205291)
 希望大家能友善对待不同的观点，不要滥用举报功能。如果你觉得我的回答可能帮助到了你，那么请点赞支持一下，让更多的人看的它；如果你觉得有错误，请在评论区指出，私信告诉我，或者给[✈我的Telegram](https://bit.ly/ark-tg)发消息。谢谢 @[方舟](https://bit.ly/ark-zhihu)  
 [⭐方舟的知乎动态](https://bit.ly/ZhIhu)  
 [💛GitHub](https://bit.ly/ark-github)｜[💙Twitter](https://bit.ly/ark-twitter)｜[💚Facebook](https://bit.ly/ark-fb)｜[💜YouTube](https://bit.ly/ark-u2b)  
-[⭐打赏二维码](https://bit.ly/ark-pay)  
+[✅「微信打赏」二维码](https://bit.ly/ark-pay)  
 ![](https://cdn.jsdelivr.net/gh/lkpo0v/5n@master/dashang.jpg)
 
 ------------
@@ -34,7 +34,8 @@ https://www.zhihu.com/question/19550695/answer/12205291)
 
 如果你觉得我的文章可能帮助到了你，那么请点赞支持一下，让更多的人看的它；如果你觉得有错误，请在评论区指出，私信告诉我，或者给[✈我的Telegram](https://bit.ly/ark-tg)发消息。谢谢 @[方舟](https://bit.ly/ark-zhihu)  
 [⭐方舟的知乎动态](https://bit.ly/ZhIhu)  
-[💛GitHub](https://bit.ly/ark-github)｜[💙Twitter](https://bit.ly/ark-twitter)｜[💚Facebook](https://bit.ly/ark-fb)｜[💜YouTube](https://bit.ly/ark-u2b)  [✅打赏二维码](https://bit.ly/ark-pay)  
+[💛GitHub](https://bit.ly/ark-github)｜[💙Twitter](https://bit.ly/ark-twitter)｜[💚Facebook](https://bit.ly/ark-fb)｜[💜YouTube](https://bit.ly/ark-u2b)  
+[✅「微信打赏」二维码](https://bit.ly/ark-pay)  
 ![](https://cdn.jsdelivr.net/gh/lkpo0v/5n@master/dashang.jpg)
 
 ------------
@@ -43,7 +44,8 @@ https://www.zhihu.com/question/19550695/answer/12205291)
 
 本文一切权利归原作者所有，已获得转载许可/按原作者要求注明转载链接。如果你觉得有错误，请在评论区指出，私信告诉我，或者给[✈我的Telegram](https://bit.ly/ark-tg)发消息。谢谢 @[方舟](https://bit.ly/ark-zhihu)  
 [⭐方舟的知乎动态](https://bit.ly/ZhIhu)  
-[💛GitHub](https://bit.ly/ark-github)｜[💙Twitter](https://bit.ly/ark-twitter)｜[💚Facebook](https://bit.ly/ark-fb)｜[💜YouTube](https://bit.ly/ark-u2b)  [✅打赏二维码](https://bit.ly/ark-pay)  
+[💛GitHub](https://bit.ly/ark-github)｜[💙Twitter](https://bit.ly/ark-twitter)｜[💚Facebook](https://bit.ly/ark-fb)｜[💜YouTube](https://bit.ly/ark-u2b)  
+[✅「微信打赏」二维码](https://bit.ly/ark-pay)  
 ![](https://cdn.jsdelivr.net/gh/lkpo0v/5n@master/dashang.jpg)
 
 ------------
